@@ -5,4 +5,4 @@
 ``` diff
 ! I love my boyfriend <3
 
-$${\color{red}Welcome \space \color{lightblue}To \space \color{orange}Stackoverflow}}$
+${{\color{red}Welcome \space \color{lightblue}To \space \color{orange}Stackoverflow}}$
