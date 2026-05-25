@@ -3,4 +3,4 @@
 
 $${\color{#6A659B}My \space \color{#AC9AB0}Sweetest \space \color{#FC8167}Boyfriend \space \color{#FEE596}ever!!!}$$
 
-   [strawpage](totallyrad.straw.page) , [rentry WIP](https://rentry.co/totallyradical)
+   [strawpage](https://totallyrad.straw.page/) , [rentry WIP](https://rentry.co/totallyradical)
