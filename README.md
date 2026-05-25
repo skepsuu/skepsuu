@@ -4,8 +4,5 @@
 
 ``` diff
 ! I love my boyfriend <3
-% Source - https://stackoverflow.com/a/73613687
-% Posted by F4NT0
-% Retrieved 2026-05-25, License - CC BY-SA 4.0
 
 $${\color{red}Welcome \space \color{lightblue}To \space \color{orange}Stackoverflow}$$
