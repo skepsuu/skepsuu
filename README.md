@@ -1,4 +1,4 @@
 [![Untitled503-20260525170451.png](https://i.postimg.cc/zBbzdJgc/Untitled503-20260525170451.png)](https://x.com/i/status/2032207286576562569)
 
 ``` diff
-! this text is red 
+! so you think of what to say.
