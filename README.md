@@ -5,5 +5,4 @@
 ``` diff
 ! I love my boyfriend <3
 ``` html
- // #708ABF
 $${\color{red}Color \space your \space \color{green}.md \space file \space \color{blue}in \space Github}$$
