@@ -2,4 +2,4 @@
 
 # My Project Title
 
-$$ \color{cyan}{\Huge \text{🚀 hi}} $$
+$$ \color{cyan}{\Huge \text{hi}} $$
