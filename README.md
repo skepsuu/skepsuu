@@ -4,5 +4,5 @@
 ``` diff
 ! I love my boyfriend <3
 ```
-<img src=[![Untitled503-20260525184046.png](https://i.postimg.cc/Gh5ZQZRh/Untitled503-20260525184046.png)](https://postimg.cc/Mv1PZ3X)"width="300">
+[![Untitled503-20260525184046.png](https://i.postimg.cc/Gh5ZQZRh/Untitled503-20260525184046.png)](https://postimg.cc/Mv1PZ3X)
 
