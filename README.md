@@ -1,5 +1,6 @@
+![https://64.media.tumblr.com/c3d7ccdf2cc472149c7a597decdcd86a/1061ec6fbe4348ea-7d/s2048x3072/4a28068391d09fa1dfefb18380d6c07740c243ce.pnj](https://64.media.tumblr.com/c3d7ccdf2cc472149c7a597decdcd86a/1061ec6fbe4348ea-7d/s2048x3072/4a28068391d09fa1dfefb18380d6c07740c243ce.pnj)
 
-![Untitled628-20261026043754.png](https://i.postimg.cc/5NTjcnGt/Untitled628-20261026043754.png)
+![erifef!!](https://i.postimg.cc/Bn9nNdGk/Eri-and-fef.png)
 <p align="center">
   <img src="https://i.postimg.cc/CKPxN7b3/Untitled628-20261026044646.png" width="50" height="25">
 </p>
