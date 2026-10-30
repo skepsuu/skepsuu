@@ -5,7 +5,7 @@
   <img src="https://i.postimg.cc/CKPxN7b3/Untitled628-20261026044646.png" width="50" height="25">
 </p>
 
-$${\color{#FEE596}theres \space \color{#FEE596}no \space \color{#FEE596}hope}$$
-any prns 〃 unlabeled 〃 c+h at all times. . .
+<p style="text-align: center;">$${\color{#FEE596}theres \space \color{#FEE596}no \space \color{#FEE596}hope}$$
+any prns 〃 unlabeled 〃 c+h at all times. . .</p>
 
 ![https://64.media.tumblr.com/7968b61209b94ee41c2dc63d508128ea/1061ec6fbe4348ea-06/s2048x3072/ad93f1694d17d8cec379c36f5e3ac847d96dd80c.pnj](https://64.media.tumblr.com/7968b61209b94ee41c2dc63d508128ea/1061ec6fbe4348ea-06/s2048x3072/ad93f1694d17d8cec379c36f5e3ac847d96dd80c.pnj)
