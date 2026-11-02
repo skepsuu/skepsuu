@@ -1,3 +1,3 @@
-[![art by AnjelJejunum!](https://i.postimg.cc/QMV4zHY0/Eridan.png)](https://x.com/AnjelJejunum/status/2116967159012171788?a=qky8hElDJmsdyKodbb0&s=19)
+$${\color{#6a006a}*minor*, ENTP ェ SPﾉSO784 , **any ﾉ all** unlabeled . . .$$
+<a href="url"><img src="https://i.postimg.cc/QMV4zHY0/Eridan.png" align="right" height="495" width="420" ></a>
 
-$\color{#6A006A}\textsf{Eri}$
