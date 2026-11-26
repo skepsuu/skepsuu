@@ -19,7 +19,7 @@ $\color{#6a006a}{\text{who up picklin' they tampon}}$
 <details>
    <summary>$\color{#602D62}{\text{click for a surprise}}$</summary>
   <img src="https://static.wikia.nocookie.net/mspaintadventures/images/7/75/Cronus.png/revision/latest?cb=20160406135424" alt="fat cro">
-$\color{#602D62}{\text{you vwant me?}}$
+$\color{#602D62}{\text{heyy~}}$
   </details>
 </div>
 
