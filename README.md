@@ -12,7 +12,8 @@
 
 <div align="center">
 <table><tr><td>
-$\color{#6a006a}{\text{who up picklin' they tampon}}$
+<img src="https://i.postimg.cc/Qds4KpGP/IMG-0349.webp" alt="me and kat?"width="97" height="145">
+  @yaoikat
 </td>
 
 <div align="center">
